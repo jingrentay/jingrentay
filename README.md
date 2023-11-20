@@ -8,7 +8,7 @@
 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
-      Phone: +15095928395
+      Phone: +15097157295
       Email: jingren.tay@wsu.edu
 <!---
 jingrentay/jingrentay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
