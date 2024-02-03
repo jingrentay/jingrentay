@@ -3,7 +3,7 @@
 - 👀 I’m interested in 
       Technology, Video Games, Soccer, Badminton 
       
-- 🌱 I’m witholding Bachelor's of 
+- 🌱 I’m withholding Bachelor's of 
       Computer Science Major in Washington State University.
 
 - 💞️ I’m looking to collaborate on ...
